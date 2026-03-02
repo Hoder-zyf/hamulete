@@ -1,3 +1,10 @@
+应试系统 vs 残酷现实的两种赛道：
+
+* 应试赛道看“天赋 + 资源（纠正力） + 爆发力”
+* 现实赛道看“修复力 + 持续性 + 不崩溃”
+
+---
+
 * https://www.tingtalk.me
 * https://theinitium.com
 * https://github.com/shengcaishizhan/kkndme_tianya
