@@ -21,5 +21,6 @@ SINK: (Single Income, No Kids)
 帘卷西风，惊醒旧梦，谁比黄花瘦？
 
 * https://en.wikipedia.org/wiki/Inert_gas_asphyxiation
+* https://home.gamer.com.tw/artwork.php?sn=4937952
 
 皇后大道东转皇后大道中：https://webfee.blogspot.com/2011/10/blog-post.html
