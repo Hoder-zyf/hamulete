@@ -3,6 +3,7 @@
 > [!NOTE]
 > SINK: (Single Income, No Kids) 
 
+* [3people.com.tw - 社會學精選試题FAFN4R-1.pdf](https://www.3people.com.tw/%E9%87%8D%E8%A6%81%E8%80%83%E8%A8%8A/%E5%AD%B8%E5%93%A1%E9%87%8D%E8%A6%81%E8%B3%87%E8%A8%8A/%E5%8B%98%E8%AA%A4%E8%A3%9C%E5%85%85/104/%E7%A4%BE%E6%9C%83%E5%AD%B8%E7%B2%BE%E9%81%B8%E8%A9%A6%E9%A1%8CFAFN4R-1(%E9%82%B1%E8%80%81%E5%B8%AB).pdf)
 * [为什么会有人觉得丁克晚年悲惨？ - 半佛仙人的回答 - 知乎](https://www.zhihu.com/question/339501070/answer/1949482147653067940)
 * [为什么会有人觉得丁克晚年悲惨？ - 牙再大也要笑的回答 - 知乎](https://www.zhihu.com/question/339501070/answer/1969296077288104657)
 * [现在的人都摆烂不生孩子，那魏晋南北朝、五代十国和近代史这种乱世都是谁在生？ - 荻 生的回答 - 知乎](https://www.zhihu.com/question/1889684473383199846/answer/1891084022643414175)
