@@ -5,4 +5,6 @@
 * [3Y论坛](https://www.3ylt.xyz/)
 * https://2libra.com
 * https://www.moltbook.com
+* [有没有各科的专业性论坛，不要那些灌水闲聊的只关注专业问题，希望做一个各科专业性的论坛大全贴，方便交流？ - Introspector的回答 - 知乎](https://www.zhihu.com/question/39119132/answer/3535103617)
+
   
