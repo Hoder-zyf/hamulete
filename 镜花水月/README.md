@@ -36,6 +36,7 @@
 * [为什么老一辈的人似乎更坚韧，而年轻人却更容易陷入抑郁？ - 废姐的回答 - 知乎](https://www.zhihu.com/question/1955589339712042858/answer/1992197215993758781)
 * [很多年轻人明知去大城市没前途，为什么还要去？ - 0x55AA的回答 - 知乎](https://www.zhihu.com/question/457100446/answer/2005702628487737681)
 * [一县之人可治国，为什么蜀汉后期人才凋敝? - 陈野亮的回答 - 知乎](https://www.zhihu.com/question/1900285307842196897/answer/2011112110369834393)
+* [BILIBILI - 广东省考考生P图篡改成绩误导竞争者，将面临何种处理？](https://www.bilibili.com/video/BV14oAhzxEZo)
 * 互联网已经将绝大部分信息差抹除了，知识已经随处可以获得，为何大部分人依旧无法获得大幅突破？
     * [Thoughts Memo的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/1916097566908610366)
     * [Sigon的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/16289577569)
