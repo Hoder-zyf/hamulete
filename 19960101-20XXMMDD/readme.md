@@ -59,3 +59,4 @@
 * [BILIBILI - 尽量不要看和自己无关的信息](https://www.bilibili.com/video/BV1eDfyBAE8F)
 * [vocus.cc - 千古奇文《寒窯賦》全文及譯文](https://vocus.cc/article/64191867fd89780001f46941)
 * [为什么说「太用力的人走不远」？ - Kaiser的回答 - 知乎](https://www.zhihu.com/question/38347269/answer/1985988889324840235)
+* [为什么叔本华认为年轻人很早洞察人事、谙于世故预示着本性平庸？ - sum哈哈的回答 - 知乎](https://www.zhihu.com/question/61134374/answer/1956881114363831765)
