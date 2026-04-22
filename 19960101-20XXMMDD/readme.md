@@ -4,6 +4,7 @@
 ，要是能做到 [司马懿](https://www.zhihu.com/question/650164682/answer/3509296038)、[钟会](https://www.zhihu.com/question/47624829/answer/292509525)、[徐阶](https://www.zhihu.com/question/32297808/answer/131411712)、[胡适](https://www.zhihu.com/question/14706795197/answer/1894085496503768383) ，哪怕烂如 [赵紫阳](http://zh.wikipedia.org/wiki/%E8%B5%B5%E7%B4%AB%E9%98%B3) 得一善终，那也无憾了。人因为自己的认知，周围环境，受教育程度，个人体质，人生经历等等会做出不同的决定，从来没有一边倒过，我们普通人过具体的日子，不要拿宏观去谴责个体选择。
 
 * [科技进化论 - 资本围猎下：中国生育率溃败的隐秘战争！](https://www.bilibili.com/video/BV1k1pkzwEHW)
+* [科技进化论 - 黄播不死之谜：“数字妓女”背后的 千亿狂欢！](https://www.bilibili.com/video/BV19cdJBUEz8)
 * [如果日本人的性格是菊与刀，那中国人的性格又是什么呢？ - 知乎](https://www.zhihu.com/question/390686225/answer/1999772129462338039)
 * [为什么谷爱凌的风评最近变那么多? - 刘卿的回答 - 知乎](https://www.zhihu.com/question/517625629/answer/2467782790) (离岸爱国饭，好吃；轻言大义者，临阵必变节)
 * [日本国内饥荒问题被刻意掩盖，大量未成年人出卖肉体只为换一碗拉面饱腹 - 安因斯康帝的文章 - 知乎](https://zhuanlan.zhihu.com/p/23904815345)
